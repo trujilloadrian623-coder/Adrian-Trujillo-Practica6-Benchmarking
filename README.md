@@ -1,1 +1,0 @@
-# Adrian-Trujillo-Practica6-Benchmarking
